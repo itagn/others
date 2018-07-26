@@ -5,4 +5,4 @@
 
 [同学录](https://itagn.github.io/others/map)  
 
-[杉原和zm](https://itagn.github.io/others/love/zm)  
+[杉原和zm](https://itagn.github.io/others/love/zm/index)  
