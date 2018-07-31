@@ -7,6 +7,8 @@
 
 [爸妈结婚](https://itagn.github.io/others/home)  
 
-[杉原和zm](https://itagn.github.io/others/love/zm/index)  
+[杉原和zm](https://itagn.github.io/others/love/zm)  
 
-[小甜心和猪屎王](https://itagn.github.io/others/love/ruan/index)  
+[小甜心和猪屎王](https://itagn.github.io/others/love/ruan) 
+
+[袁德康和章雪雯](https://itagn.github.io/others/love/ydk)  
