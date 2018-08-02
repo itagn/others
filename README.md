@@ -11,4 +11,6 @@
 
 [小甜心和猪屎王](https://itagn.github.io/others/love/ruan) 
 
-[袁德康和章雪雯](https://itagn.github.io/others/love/ydk)  
+[袁德康和章雪雯](https://itagn.github.io/others/love/ydk) 
+
+[小可爱和陈先生](https://itagn.github.io/others/love/chen)  
